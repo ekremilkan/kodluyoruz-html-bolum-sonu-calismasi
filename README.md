@@ -1,1 +1,1 @@
-# kodluyoruz-html-bolum-sonu-calismasi
+# Kodluyoruz Bölüm Sonu Çalışması
